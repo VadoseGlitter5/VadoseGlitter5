@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @VadoseGlitter5
+-estudio acgtualmente ing.Sistemas de la informacion
+- 📫 mi correo es a220220305@unison.mx
