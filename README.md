@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @VadoseGlitter5
--estudio acgtualmente ing.Sistemas de la informacion
+-im study actualy sistems of information in UNISON
 - 📫 mi correo es a220220305@unison.mx
